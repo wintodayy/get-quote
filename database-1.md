@@ -1,19 +1,14 @@
----
-meta-description: "Find top-rated parts with fast quotes and worldwide delivery from an ASA, ISO & FAA-approved distributor."
----
-
-Welcome to Part List! Click the link below to fill the form and receive a response within 1 hour. 
+Welcome to Part List! Fill out the form and receive a response within 1 hour. 
 
 🔹 Billions of quality parts delivered to thousands of satisfied customers.
 🔹 ASA, ISO & FAA-approved worldwide distributor.
 🔹 Get a quote for NSN, aviation, electronic, IT hardware, and fasteners.
 🔹 Fast response and competitive pricing guaranteed.
 
-[Get A Quote Now](https://forms.gle/zb5Qi9NdgbbANaDG6)
+👉 [Click here to get a quote now](https://forms.gle/zb5Qi9NdgbbANaDG6)
 
 
 **Available Parts:**
-- [Get A Quote For Any Parts of NSN, Aviation, Electronic, Electromechanical, IT hardware, Fasteners and other](https://forms.gle/zb5Qi9NdgbbANaDG6)
 - 5999015793866 | 7415996-00 | 
 - 1560017070714 | 35-27756-5 | 
 - 5360017032012 | 5802953134 | 
